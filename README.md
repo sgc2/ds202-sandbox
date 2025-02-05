@@ -10,6 +10,8 @@ We are trying to write this together as a group
 -  Made some new friends
 - Winning the Cyhawk game
 - My school workload is really light right now.
+- Living with my friends
+
 
 
 ## Crappies
@@ -20,3 +22,4 @@ We are trying to write this together as a group
 - Got a sucky lab TA that ignores people (including the other TA)
 - Not being able to go to the Cyhawk game in person
 - Iowa State basketball losing 4 of their last 6 games.
+- Having to cook for myself
